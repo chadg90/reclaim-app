@@ -1,6 +1,6 @@
 # Privacy Policy – Reclaim: UK Train Delay
 
-**Last updated:** February 2025
+**Last updated:** February 2026
 
 This privacy policy applies to the app **Reclaim: UK Train Delay** (“the App”) on iOS. It explains how we handle information when you use the App.
 
