@@ -77,4 +77,4 @@ If you have any questions about this privacy policy or the App’s handling of d
 
 ---
 
-*This policy is in British English and is intended for users of the App in the United Kingdom and elsewhere.*
+*This policy is in British English and is intended for users of the App in the United Kingdom.*
